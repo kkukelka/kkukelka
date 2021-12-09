@@ -1,4 +1,4 @@
-### to close to the sun 🚀
+### too close to the sun 🚀
 
 <!--
 **kkukelka/kkukelka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
